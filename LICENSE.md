@@ -1,4 +1,4 @@
-
+smart Things 3 for macOS Plugin | widgets + offline access offers the most advanced Things 3 for macOS plugin, with widgets and offline access. Ideal for professionals.
 
 
 
